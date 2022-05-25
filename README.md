@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gabrielepossa
+- 👀 I’m interested in  programação basica
+- 🌱 I’m currently learning programação basica
+- 💞️ I’m looking to collaborate  in  programação
+- 📫 How to reach me  gabriele.possa@escola.pr.gov.br
